@@ -1,6 +1,6 @@
 ## Hi, I am Karl
 
-🌸 Computer Science student at BYU–Hawaii <br>
+🧠 Computer Science student at BYU–Hawaii <br>
 💻 Tech Analyst in Admissions Dept at BYUH <br>
 🎨 I create and practice apps to stay consistent <br>
 
